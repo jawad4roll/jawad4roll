@@ -19,7 +19,7 @@ I'm a seasoned software engineer with **8 years of industry experience**, specia
 
 ## Get in Touch
 
-- Reach out via email at mejawad91@email.com
+- Reach out via email at mejawad91@gmail.com
 
 Let's collaborate, innovate, and build incredible software together!
 
